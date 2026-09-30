@@ -1,5 +1,3 @@
-Reach me at : (https://www.fiverr.com/s/38DAPgY || https://www.upwork.com/freelancers/~01ec60a583fe002303?mp_source=share)
-
 Principal Recruiter & HR Analyst...Currently leveraging my background in Electronics & Communications Engineering to transition into Data Analytics and Data Science. Since 2022, integrating Generative AI to improve productivity by 30%
 
 Engineering Foundation: B.Tech in Electronics & Communications Engineering.
